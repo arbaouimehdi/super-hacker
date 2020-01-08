@@ -1,6 +1,3 @@
-
-![alt text](http://i62.tinypic.com/29g0j7l.jpg "Super Hacker")
-
 # How To Become a Super Hacker
 
 ### # Something You Should Know
